@@ -1,5 +1,1 @@
-sussy baka
-
-lol
-
-master
+sussy baka j
